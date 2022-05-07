@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @vinsmoke
+- 👀 I’m interested in nfts, and coding
+- 🌱 I’m currently learning coding and will go into web 3 developing
+- 
